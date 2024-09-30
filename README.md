@@ -1,4 +1,4 @@
-<h2 align="left">Yo!<br>Mr-Samr4i is playground of FznShousa Account.</h2>
+<h2 align="left">Yo!<br>Mr-Samur4i is the playground of FznShousa's account.</h2>
 
 ###
 
